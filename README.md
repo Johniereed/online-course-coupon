@@ -1,6 +1,6 @@
 # CFI Coupon Code 2024 🔥(Get 40% Discount)
 
-Are you looking for[ CFI coupon codes](https://bit.ly/3Zp3rVS) and discount in 2024?
+Are you looking for[ CFI coupon codes](https://bit.ly/3Zp3rVS) and discounts in 2024?
 
 Now you can get discounts of 40% or save flat $200 on your CFI membership plans today.
 

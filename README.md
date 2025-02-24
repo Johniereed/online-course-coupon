@@ -295,7 +295,7 @@ So, what are you waiting for? Grab your CFI discount coupon code, enroll in a co
 
 ### Is there a discount on CFI courses?
 
-### Yes, you can get up to 40% off of CFI courses and membership plans with exclusive coupon codes and offers. Scroll up to learn more.
+Yes, you can get up to 40% off of CFI courses and membership plans with exclusive coupon codes and offers. Scroll up to learn more.
 
 ### Can I Get CFI Certification For Free?
 

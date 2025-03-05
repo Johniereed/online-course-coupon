@@ -4,9 +4,9 @@ Are you looking for[ CFI coupon codes](https://bit.ly/3Zp3rVS) and discounts in 
 
 I've got you covered to boost your finance career with top-tier certifications from the Corporate Finance Institute (CFI).
 
-Use our CFI discount code to get 40% off on all Corporate Finance Institute courses and programs including its most in-demand course FMVA.
+Use our CFI discount code to get 40% off on all Corporate Finance Institute courses and programs, including its most in-demand course FMVA.
 
-In addition to that I will also talk about some of the free courses available on the CFI platform which gives you even a certification on completion.
+In addition to that, I will also talk about some of the free courses available on the CFI platform, which gives you even a certification on completion. Plus, if you're looking for the [best CFI coupon codes and discounts](https://cficoupon.com/), I've compiled the top deals to help you maximize your savings.
 
 Let’s get started and maximize your savings!
 
